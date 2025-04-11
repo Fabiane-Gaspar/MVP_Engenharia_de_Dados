@@ -1,4 +1,3 @@
-
 CATÁLOGO DETALHADO:
 [Catalogo_Dados_Residuos_Plastico.pdf](https://github.com/user-attachments/files/19714636/Catalogo_Dados_Residuos_Plastico.pdf)
 
